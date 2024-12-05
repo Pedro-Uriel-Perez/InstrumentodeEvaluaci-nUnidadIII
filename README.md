@@ -44,6 +44,7 @@ https://vm.tiktok.com/ZMke2V9HD/
 ### Exámen Final
 
 
+
 ## Coevaluación:
 ## Miguel Angel Alvarez Ibarra
 Número de control: 1223100379
@@ -53,4 +54,4 @@ Como puntos negativos puedo señalar que me pareció que su participación no er
 Como puntos de mejora solo remarcaría la responsabilidad, ya que considero que mi compañero tiene un buen nivel académico, tuvo una buena participación y se desempeñó bien durante el trabajo.
 
 ## Pedro Uriel Perez Monzón
-Número de control: 
+Número de control: 1223100428 
